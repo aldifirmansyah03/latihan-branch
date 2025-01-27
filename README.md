@@ -1,2 +1,2 @@
 # latihan-branch
-okok
+Wah seru bangettt
