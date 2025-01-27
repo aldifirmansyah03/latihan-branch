@@ -1,2 +1,2 @@
 # latihan-branch
-okok
+Github Itu asik loooooo
