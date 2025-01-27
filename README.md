@@ -1,2 +1,2 @@
 # latihan-branch
-Github Itu asik loooooo
+Wah seru bangettt
